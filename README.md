@@ -1,1 +1,1 @@
-# Portfolio Template For Artists
+# Portfolio Boilerplate For Artists >:3
